@@ -1,2 +1,2 @@
 # 969
-969 hub
+you cant use this hub unless your whitelisted
